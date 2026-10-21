@@ -43,5 +43,5 @@ xstephaniexsouzax.github.io/
 
 ## Contato
 
-- [LinkedIn](https://www.linkedin.com/in/stephanie-miranda](https://www.linkedin.com/in/stephanie-miranda-962585301)
+- [LinkedIn](https://www.linkedin.com/in/stephanie-miranda-962585301)
 - [GitHub](https://github.com/xstephaniexsouzax)
